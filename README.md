@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sabii1
-- 👀 I’m interested in sabis wrold
+- 👀 I’m interested in sabis world
 - 🌱 I’m currently learning everyhting
 - 💞️ I’m looking to collaborate on meanwhile
 - 📫 How to reach me please write me an email.
